@@ -1,0 +1,2 @@
+# abdi-shakuur
+Pernol
